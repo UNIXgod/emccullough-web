@@ -1,4 +1,4 @@
-Edwin McCullough's Web Arcive circa early 2000
+Edwin McCullough's Web Archive
 ===============
 
 Created by Stuart Gerstein
